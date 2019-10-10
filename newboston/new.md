@@ -1,0 +1,1 @@
+Duniya M*****d hai!!!
